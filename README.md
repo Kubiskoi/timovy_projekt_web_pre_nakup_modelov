@@ -1,0 +1,1 @@
+# timovy_projekt_web_pre_nakup_modelov
